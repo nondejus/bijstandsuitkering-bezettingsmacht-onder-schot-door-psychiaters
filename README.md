@@ -1,5 +1,9 @@
 # bijstandsuitkering-bezetting-onder-schot-door-psychiaters
+
 2002-2021
+
+# liquidatie
+https://nl.wikipedia.org/wiki/Liquidatie_(moord)
 
 # staat der nederlanden
 https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
